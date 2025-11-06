@@ -3,7 +3,7 @@
 🎓 **B.Tech in Artificial Intelligence & Data Science (2023–2027)**  
 📍 Dehradun, India  
 📧 [suhanipal441@gmail.com](mailto:suhanipal441@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com/in/suhanipal441) | [GitHub](https://github.com/SUHANI-PAL0103)
+🔗 [LinkedIn](https://www.linkedin.com/in/suhani-pal-835b40359?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) | [GitHub](https://github.com/SUHANI-PAL0103)
 
 ---
 
